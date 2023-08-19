@@ -6,6 +6,8 @@
 ------
 :fire: :point_right: 【地址三】 ：https://tt88yy.com
 ------
+:fire: :point_right: 【内容】 ：日韩，欧美，主播，美女，小说，图片
+------
 :globe_with_meridians: :point_right: 【海外地址】 ：https://yy8y.com
 ------
 :white_check_mark: 【邮箱联系方式】 ：
