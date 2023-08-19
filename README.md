@@ -6,7 +6,7 @@
 ------
 :fire: :point_right: 【地址三】 ：https://tt88yy.com
 ------
-:fire: :point_right: 【内容】 ：日韩，欧美，主播，美女，小说，图片
+:fire: :point_right: 【内容】 ：日韩，欧美，主播，美女，小说，图片，喝醉后的抽着寂寞的烟的小伙子
 ------
 :globe_with_meridians: :point_right: 【海外地址】 ：https://yy8y.com
 ------
